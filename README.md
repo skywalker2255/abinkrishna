@@ -1,2 +1,0 @@
-# abinkrishna
-My Personal Portfolio
